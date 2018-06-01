@@ -1,4 +1,7 @@
-I am Kyle Broflovski
---- 
+# STOP!
 
-![ME](https://vignette.wikia.nocookie.net/southpark/images/9/95/Kyle-broflovski.png/revision/latest?cb=20170725131924)
+![ME](https://vignette.wikia.nocookie.net/southpark/images/9/95/Kyle-broflovski.png)
+
+
+--- 
+I own this site now so...
